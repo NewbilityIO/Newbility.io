@@ -35,6 +35,6 @@ NBC（牛逼控）牛逼代言人：刘载然
 
 微博：https://www.weibo.com/1671909003
 
-QQ群：711852508
+QQ群：711852508，入群就送95270个NBC。
 
 电邮：newbility.io@gmail.com
