@@ -38,3 +38,13 @@ NBC（牛逼控）牛逼代言人：刘载然
 QQ群：711852508，入群就送95270个NBC。
 
 电邮：newbility.io@gmail.com
+
+# 2018-07-07
+
+未来的世界是Free Coder的世界，是Free Coding的世界，我们将自己的想法贡献在BlockChain + GitHub上面，Free Coder改变世界，通过Free Coding。
+
+世界反馈给Coder NBC，支持Coder继续为世界的改变做出贡献。
+
+Codering经济或许是NBC第一个应该考虑的经济模式。
+
+如果一个App可以产生经济价值，问题在于谁的代码应该分多少NBC，这是需要创新解决的问题。
